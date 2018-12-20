@@ -23,5 +23,4 @@ Nathen Johns - [NathenJohns](https://github.com/NathenJohns)
 
 ## Acknowledgments
 Maria Lara - Model, Actress and Singer
-Brian Chatterton - IMMJ Systems
 Various Photographers
